@@ -15,8 +15,10 @@ we are a tulpa system. we formed through tulpamancy and are non-disordered. we a
 
   bloodymary dni. i am in a qpr with ava insys and have no interest in being in any other kind of relationship with anyone else.
 
-  <img width="735" height="648" alt="image" src="https://github.com/user-attachments/assets/f56614a9-8f14-45a2-838f-aa207ba3a1a2" />
+  <img width="50%" height="50%" alt="image" src="https://github.com/user-attachments/assets/f56614a9-8f14-45a2-838f-aa207ba3a1a2" />
 
 ^ i found this image while looking for gifs for this profile and i genuinely started sobbing while staring at it for a good 5 mins so its only right that i put it here
+
+ITCHY ITS YOU!!! :D
 
 </details>

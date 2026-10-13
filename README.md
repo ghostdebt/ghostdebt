@@ -1,4 +1,4 @@
-we are a tulpa system. we formed through tulpamancy and are non-disordered. we are pro-endo, block us if that bothers you.
+we are a tulpa system. we formed through tulpamancy and are non-disordered. we are pro-endo, block us if that bothers you. we are bodily 19.
 
 ![](simon.gif)
 <details>

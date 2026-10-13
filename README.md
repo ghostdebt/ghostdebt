@@ -5,6 +5,8 @@ we are a tulpa system. we formed through tulpamancy and are non-disordered. we a
 <details>
   <summary>info</summary>
 
+  simon iron lung fictive
+  
   he/him and dog themed neos (paw/pup/woof/any others you want)
 
   i am a werewolf and a puppy regressor
